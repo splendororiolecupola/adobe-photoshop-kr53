@@ -1,4 +1,4 @@
-# 
+# instant Adobe Photoshop PC版 插件 是最佳 Adobe Photoshop PC版 插件，集成 样式面板 和 相机控制。安全、可靠、优化，性能最大化。
 
 
 
